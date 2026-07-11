@@ -10,7 +10,7 @@ Here's a look at some of the leading neobanks reshaping how Indians save, spend,
 
 ## 1. Jupiter
 
-![Jupiter Money](https://logo.clearbit.com/jupiter.money)
+![Jupiter Money](https://jupiter.money/content/images/2021/07/Frame-12-1.png)
 
 **Website:** [jupiter.money](https://jupiter.money)
 
